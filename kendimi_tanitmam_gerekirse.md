@@ -1,0 +1,8 @@
+- Merhaba rastgele kullanıcı, beni nickname'imle tanı.
+- Çocuk yaşta başlayan bilgisayar sevdam vardır.
+- Java (normal java), HTML, CSS gibi web ve nesne yönelimli dillere ilgim vardır.
+- Bir yazılım mühendisi olmak istiyorum.
+- Boş zamanlarımda gmod, roblox, csgo ve tf2 oynarım
+- Steam: enjoyer_velet
+- Görüşleriniz benim için önemli.
+- Proje ve kodlarıma göz atabilirsiniz.
