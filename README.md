@@ -1,6 +1,6 @@
-- Merhaba ben @veledin-biri
+- Merhaba ben @pybrocarlos216
 - İnternette kod yazmaya çalışırım
 - En sevdiğim oyun tf2 ve gmod
-- java, html, css ve c#'a ilgim vardır.
-- Steam: enjoyer_velet
+- html, css ve c#'a ilgim vardır.
+- Steam: whatsapp drip car
 - Umarım kendimi açıklayabilmişimdir.
